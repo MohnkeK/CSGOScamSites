@@ -1,0 +1,2 @@
+# CSGOScamSites
+CSGO Scam Website
