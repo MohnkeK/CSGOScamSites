@@ -9,3 +9,5 @@ Will update the list if i come by more Scammers :)
     http://csmegacup.com
 
     https://esportscharts.pw/
+
+    https://5v5-gaming.online/
