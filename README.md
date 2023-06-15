@@ -11,3 +11,5 @@ Will update the list if i come by more Scammers :)
     https://esportscharts.pw/
 
     https://5v5-gaming.online/
+
+    https://weibo-gaming.online/
